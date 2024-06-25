@@ -1,6 +1,6 @@
 # Kyle Suka Tobrut | Profile
 
-![Profile Screenshot](https://telegra.ph/file/0447ca918206f8bf59f65.jpg)
+![Profile Screenshot](https://telegra.ph/file/0447ca918206f8bf59f6.jpg)
 
 ## Developer
 
